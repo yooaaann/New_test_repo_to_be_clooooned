@@ -8,5 +8,5 @@ eqrq
 
 Also meee@gmail.com
 
-&nbsp;    mikola@gmail.com
+     mikola@gmail.com
 
